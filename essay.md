@@ -82,6 +82,8 @@ Fairfield, James. “Deadly Discourses: Examining the Roles of Language and Sile
 
 Golder, Scott A., and Michael W. Macy. “Diurnal and Seasonal Mood Vary with Work, Sleep, and Daylength Across Diverse Cultures.” *Science* 333.6051 (2011): 1878-1881. Web. 11 Apr. 2015. 
 
+Hogue, W. Lawrence. “Can the Subaltern Speak? A Postcolonial, Existential Reading of Richard Wright’s Native Son.” *Southern Quarterly: A Journal of the Arts in the South* 46.2 (2009): 9-39. Web. 4 Mar. 2015.
+
 Miller, James A. “Bigger Thomas’s Quest for Voice and Audience in Richard Wright’s Native Son.” *Callaloo: A Journal of African American and African Arts and Letters* 9.3 (28) (1986): 501-506. Web. 15 Mar. 2015.
 
 Precoda, Karl, and P. S. Polanah. “In the Vortex of Modernity: Writing Blackness, Blindness and Insight.” *Journal of Modern Literature* 34.3 (2011): 31-46. Web. 15 Mar. 2015.
